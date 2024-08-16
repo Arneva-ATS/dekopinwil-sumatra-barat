@@ -1,1 +1,1 @@
-# dekopinwil-sumatra-barat
+# dekopinda-karanganyar
